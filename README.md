@@ -1,5 +1,5 @@
 <h1 align="center">
-  Fortnite External ➰
+  Flzx Menu ➰
 </h1>
 
 <p align="center">
